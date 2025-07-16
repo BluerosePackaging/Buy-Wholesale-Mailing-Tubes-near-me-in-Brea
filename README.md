@@ -1,6 +1,6 @@
 # Buy Wholesale Mailing Tubes near me in Brea | Bluerose Packaging 
 
-Buy wholesale Mailing Tubes near Brea for safe, secure shipping of posters, documents &amp; prints. Bulk pricing, custom sizes &amp; fast local delivery available. Order today!
+Buy wholesale Mailing Tubes near Brea for safe, secure shipping of posters, documents &; prints. Bulk pricing, custom sizes &; fast local delivery available. Order today!
 
 ---
 
